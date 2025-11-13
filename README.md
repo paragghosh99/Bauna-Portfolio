@@ -1,2 +1,0 @@
-# Bauna-Portfolio
-Portfolio
